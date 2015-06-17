@@ -1,0 +1,2 @@
+# Medical-Tourism-Facelift
+If you think that you can get more affordable and reliable treatment in your home country then do a comparison between the healthcare facilities in your home country with those at Prague. A quick comparison would help you arrive at a decision whether you should go for Czech medical tourism or take treatment back at home. When doing the comparison, also consider the quality of treatment you expect in your home country and the healthcare facilities offered by Prague hospitals. Click Here: http://www.medicaltraveladvisor.org/
